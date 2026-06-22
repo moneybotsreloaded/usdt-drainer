@@ -1,5 +1,4 @@
-shop https://moneybots.myshoppex.io/product/custom-drainer-script
-
+https://moneybots.myshoppex.io/product/create-crypto-token
 telegram @Moneybotsreloaded
 
 https://x.com/moneywithbots
