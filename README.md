@@ -1,4 +1,6 @@
-https://moneybots.myshoppex.io/product/create-crypto-token
+
+https://moneybots.myshoppex.io/
+
 telegram @Moneybotsreloaded
 
 https://t.me/moneybotsdigital telegram channel
